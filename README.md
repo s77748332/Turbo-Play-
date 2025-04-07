@@ -24,5 +24,4 @@ Turbo Poker
 
 Turbo shaft play
 
-## Thanks For Downloading👍🥰](https://portablecrack.co/wp-admin/)
-
+## [✔🎉🚀Thanks For Downloading👍🥰](https://portablecrack.co/wp-admin/)
